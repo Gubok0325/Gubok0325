@@ -1,0 +1,5 @@
+- I’m @Gubok0325
+- use python
+- Korean
+- My pronoun is '거부기'
+- and in English it’s turtle.
